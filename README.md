@@ -35,4 +35,38 @@
  ![](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1529125554982&di=ee4bc930542b3adc6552e24eee65e37d&imgtype=0&src=http%3A%2F%2Fi-7.vcimg.com%2Ftrim%2Fbad25c907f7b2fcec598540a82c3433b430596%2F221552ncwdnv7cvgnbrvhh.jpg) 
 
 
+ - [**刺客信条2  (Assassins Creed II)**](http://www.ali213.net/zt/ac2/)  -第三人称冒险类单机游戏(未下载）
+ 
+ ![](https://gss1.bdstatic.com/-vo3dSag_xI4khGkpoWK1HF6hhy/baike/c0%3Dbaike180%2C5%2C5%2C180%2C60/sign=29cf1152d21b0ef478e5900cbcad3abf/79f0f736afc379318758df55ebc4b74543a9119d.jpg) 
+
+
+ - [**刺客信条4:黑旗  (Assassins Creed IV: Black Flag)**](http://www.ali213.net/zt/ac4/)  -第三人称冒险类单机游戏(未下载）
+ 
+ ![](http://img1.gamersky.com/upimg/pic/2017/04/25/201704250914168950_small.jpg) 
+
+***
+## **网络游戏** ##
+- 绝地求生大逃杀
+- 彩虹六号
+- 荣耀战魂 （未下载)
+- 传送门2 (未下载）
+- 全面吃鸡模拟器
+- 求生之路 （未下载）
+- 守望先锋（未下载）
+
+
+***
+## GALGAME ##
+### steam  ###
+
+- eden*
+- 寒蝉鸣泣之时
+- 花吻在上
+### 本地  ###
+- 命运石之门
+- 巧克力香子兰
+- 美少女万花镜
+- May-Be SOFT
+- LOVELY×CATION 2
+
 
