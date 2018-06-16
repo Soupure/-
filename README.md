@@ -1,6 +1,6 @@
-#soupure个人电脑游戏整理(持续更新~)#
+# soupure个人电脑游戏整理(持续更新~) #
 ***
-##**单机游戏**
+## **单机游戏**
 
  - [**死亡细胞  （DeadCell）**](http://0day.ali213.net/html/2017/29923.html?bdkp)  -像素风格ACT游戏 rouguelike元素  
  
